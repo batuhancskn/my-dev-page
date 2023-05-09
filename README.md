@@ -1,2 +1,0 @@
-batuhancskn.github.io
-knnaksndkansd
